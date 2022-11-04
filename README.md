@@ -1,9 +1,12 @@
 # `🧿 EDICIÓN LIBRE Y PERSONAL 🔮`
 
-### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTANOS 👑`
+### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTAME 👑`
 <a href="http://wa.me/573153455374" target="blank"><img src="https://img.shields.io/badge/𒋦ELDEL_ꮻ_MC🦑-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 
+ 
+ 
+ 
 ### `—◉ 💟 GRUPO DE SOPORTE 💟`
 
 
@@ -13,13 +16,19 @@
 
 
 
- > NO SPAMEAR COMANDOS
+ 
 
 ### `—◉ 💰 DONAR 💰`
 
 
+ 
+ 
+ 
+ 
+ 
+
 ### `—◉ 🖍 LETRA DEL BOT 🖍`
-- PAGINA USADA PARA LA LETRA [Aqui](https://smiley.cool/es/weirdmaker.php)
+- PAGINA USADA PARA LA LETRA [i](https://smiley.cool/es/weirdmaker.php)
 
 ### `—◉ 💡 EXPERIMENTA CON UNA IA PARA NUEVOS COMANDOS 💡`
 - PAGINA [Aqui](https://beta.openai.com/playground)
