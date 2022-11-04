@@ -1,7 +1,7 @@
 # `🧿 EDICIÓN LIBRE Y PERSONAL 🔮`
 
 ### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTANOS 👑`
-<a href="http://wa.me/573153455374" target="blank"><img src="https://img.shields.io/badge/BRUNO_SOBRINO_CREADOR-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="http://wa.me/573153455374" target="blank"><img src="https://img.shields.io/badge/𒋦ELDEL_ꮻ_MC🦑-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 
 ### `—◉ 💟 GRUPO DE SOPORTE 💟`
