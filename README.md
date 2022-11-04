@@ -1,4 +1,4 @@
-# `🧿 EDICIÓN LIBRE Y PERSONAL 🔮`
+# `🧿EDICIÓN LIBRE Y PERSONAL🔮`
 
 ### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTAME 👑`
 <a href="http://wa.me/573153455374" target="blank"><img src="https://img.shields.io/badge/𒋦ELDEL_ꮻ_MC🦑-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
